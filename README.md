@@ -1,3 +1,3 @@
-# Welcome to the Open Source Expert
+# Welcome to the The Web Guys Community
 
-Welcoming to the open source expert organization.
+Welcoming to the The Web Guys organization.
